@@ -1,1 +1,0 @@
-# jpminako.github.io
